@@ -1,0 +1,1 @@
+# fsty30-portofolio

@@ -1,1 +1,1 @@
-# fsty30-portofolio
+# fsty30-cpu.github.io
